@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+- 🧑‍💻 I'm currently working on Creating a reposity of my notes : https://bumpy-quilt-d27.notion.site/
+- 🧑‍🎓 i'm currently leanring Public health 
+- 😄 Pronouns: she/her 
